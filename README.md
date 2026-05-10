@@ -4,7 +4,7 @@
 
 ![Picture2.png](https://p.inari.site/usr/795/67e895f04663d.png)
 
-## 1.EWAN – 稳定与速度的梯子首选
+## 1.EWAN – 稳定与速度的科学梯子首选
 
 **[官网地址传送](https://affg.cc/ewan)**
 
